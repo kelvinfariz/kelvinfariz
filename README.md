@@ -9,7 +9,6 @@ I am currently taking MSIB batch 6 at [Dicoding](https://www.dicoding.com/)🚀<
 If you are interested in getting to know me, please follow my [Instagram](https://www.instagram.com/whovinnn/).⚽ <br>
 
 Let's be friends ⚡
-
 ### Github Statistic
 <p align="left">
 <a href="https://github.com/kelvinfariz">
